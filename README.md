@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JurateRuzaite
 - 👀 I’m interested in language, society, and discourse
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning to annotate propaganda techniques and incivility
 - 💞️ I’m looking to collaborate on research on propaganda, hate speech, language and ideology
 - 📫 How to reach me jruzaite@gmail.com
 
